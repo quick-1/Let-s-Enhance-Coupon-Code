@@ -114,6 +114,7 @@ Yes! It works for both **monthly and annual plans**, giving you full access to L
 ### 4. Can I reuse the KUMAR30 coupon code?
 
 Typically, it’s for **one-time use per account**, but you may be able to apply it again during renewals or special campaigns.
+by author Pintu Kumar
 
 
  
